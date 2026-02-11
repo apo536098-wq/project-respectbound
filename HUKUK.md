@@ -13,4 +13,3 @@ Eğer bakışlar cinsel amaçlı ve rahatsız edici boyuttaysa bu madde üzerind
 - Olay anını not edin.
 - Varsa tanıkları belirleyin.
 - En yakın karakola veya savcılığa dilekçe ile başvurun.
-
